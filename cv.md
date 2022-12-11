@@ -1,4 +1,4 @@
-# Альберт Аванесян
+# Альберт Аванесян / Albert Avanesyan
 ## Contact info:
 [Telegram](t.me/alberted)
 
